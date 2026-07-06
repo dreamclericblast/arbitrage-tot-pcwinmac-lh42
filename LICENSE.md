@@ -1,4 +1,4 @@
-# 
+# نهائي bot تداول التحكيم أدوات for Mac OS | نخبة bot تداول التحكيم أدوات for PC Windows. Featuring تداول العقود المستقبلية and تحليل الزخم — optimized for maximum performance.
 
 
 
